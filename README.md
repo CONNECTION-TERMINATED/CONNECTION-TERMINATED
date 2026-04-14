@@ -27,20 +27,6 @@ My opinion on [proshipping](https://rentry.co/rowansproshipstance) read if you c
 </p>
 
 <p align="center">
-INT —
-</p>
-
-— Willry/Helliam ✓
-
-— Clay Burke x Henry Emily ✓
-
-— Henry Emily x Mrs Emily ✓
-
-EXT —
-
-— Normal people
-
-<p align="center">
  <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/763cf8cb-444e-451d-b844-7c2085946f7e" />
 </p>
 
