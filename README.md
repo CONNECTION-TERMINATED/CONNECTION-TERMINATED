@@ -1,6 +1,6 @@
 # CONNECTION TERMINATED
 
-![](https://github.com/user-attachments/assets/24c4efb0-4e04-44d4-a0ed-7c4824da8922)![](https://github.com/user-attachments/assets/b4afd07c-56fb-4510-a70f-5322d599d226)![](https://github.com/user-attachments/assets/3a646181-2eda-434a-a414-9ca8cc080577)
+![](https://i.postimg.cc/t4tHsxvr/tumblr-578f4eee03a7c62bfd8c774bea23aa27-dc5e54ca-400.png)![](https://github.com/user-attachments/assets/b4afd07c-56fb-4510-a70f-5322d599d226)![](https://i.postimg.cc/mgMg8kXZ/tumblr-cbe1f8bb5e7da16f85abe80497238cfb-d7bb7012-400.png)
 
 
 
